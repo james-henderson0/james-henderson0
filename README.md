@@ -2,7 +2,7 @@
 - 👀 I’m interested in all things digital, particularly commerce
 - 🌱 I’m always learning. Right now Im focused on AI and autonomous commerce
 - 💞️ I’m looking to collaborate on commerce
-- 📫 Reach me via Linkedin - https://www.linkedin.com/in/jameshendersonbdm/](https://www.linkedin.com/in/jameshendersonsalesengineer/
+- 📫 Reach me via Linkedin - https://www.linkedin.com/in/jameshendersonsalesengineer/
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Im also a yoga teacher!
 
